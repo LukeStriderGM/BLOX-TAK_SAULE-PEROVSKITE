@@ -14,11 +14,11 @@
   
   #### PL: https://www.linkedin.com/posts/lukebluelox_godzina-zero-150-krzysztof-stanowski-i-olga-activity-7401239162663636992-dKq5
 
-  ### EN / PL 
+  #### EN / PL 
   
-  ### Competition Entry / Zgłoszenie Do Konkursu : 
+  #### Competition Entry / Zgłoszenie Do Konkursu : 
   
-  ### https://www.linkedin.com/posts/lukebluelox_nagroda-wielkiego-konkursu-wiedzy-o-piotrze-activity-7406981674107965440-dj_p?utm_source=share&utm_medium=member_desktop&rcm=ACoAADA_czcBUowVCMWqBo4HkjnFOu4l4tbD8Kc
+  #### https://www.linkedin.com/posts/lukebluelox_nagroda-wielkiego-konkursu-wiedzy-o-piotrze-activity-7406981674107965440-dj_p?utm_source=share&utm_medium=member_desktop&rcm=ACoAADA_czcBUowVCMWqBo4HkjnFOu4l4tbD8Kc
 
 </div>
 
